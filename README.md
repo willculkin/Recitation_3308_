@@ -1,1 +1,1 @@
-# Recitation_3308_
+# Recitation_3308_Partner: Nicki Richter
